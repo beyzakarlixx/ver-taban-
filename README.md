@@ -1,0 +1,2 @@
+# ver-taban-
+BBY361 VERİ TABANI YÖNETİM SİSTEMLERİ
